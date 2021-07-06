@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NWA-Marketing I just received 2021 Best of Naples Internet Marketing Services.  I am a Full Stack Developer. Self taught by Tutorialinux.
-- 👀 I’m interested in ...
+- 👀 I’m interested in Jesus Christ, My Family and Country.
 - 🌱 I’m currently learning ...GitHub. How use API Framework
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything Tutorialinux and David Cohen.
 - 📫 How to reach me ... brevere69@protonmail.com
 
 <!---
